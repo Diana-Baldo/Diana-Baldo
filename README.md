@@ -7,5 +7,5 @@
 - 🌱 I’m currently learning UX/UI desing
 - 👯 I’m looking to collaborate on  desing community 
 - 🤔 I’m looking for help with UX/UI desing,typography...
-- 😄 Pronouns: She
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: I'm twin
